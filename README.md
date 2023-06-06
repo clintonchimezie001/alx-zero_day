@@ -1,1 +1,1 @@
-my first readme
+Apple devices are the best!
